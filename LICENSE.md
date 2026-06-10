@@ -1,4 +1,4 @@
-
+Enhance your PureVPN experience with PureVPN secure Plugin: malware-blocker & no-logs-policy, the #1 plugin. Includes malware-blocker and no-logs-policy for a safer and more
 
 
 
